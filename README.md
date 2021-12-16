@@ -1,0 +1,1 @@
+# covingtonhigh3.github.io
